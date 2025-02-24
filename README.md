@@ -1,4 +1,4 @@
-# Humor in a Team: Joke / Not? 
+# Humor In A Team: Joke / Not? 
 
 Not necessarily the maker, but a good indicator of a good team is the sense of humor.
 
